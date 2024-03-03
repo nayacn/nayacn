@@ -1,6 +1,6 @@
-### Hi there 👋
+### Hello there 👋
 
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- Fenaya Cecilly's here~
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: website nya dibuat untuk menjelaskan sebagian dikit daripada tentang diriku sendiri (about myself)
 
